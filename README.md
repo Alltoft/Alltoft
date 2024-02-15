@@ -36,4 +36,3 @@ As u can see there is a whole lot of stuff to do! So
 ## Over all
 Hope u find what u came looking for 🤗 Stranger 🐱‍👤.
 HAHAHAHA thank you!
-![alt text](resident_evil_iv_4_remake_merchant_cosplay_costume.jpg)
