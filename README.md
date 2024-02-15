@@ -1,9 +1,13 @@
-# Hi there 👋
+# WELCOME! 👋
+![alt text](Merchant_RE4_remake.webp)
 
-<!--
-**Alltoft/Alltoft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Alltoft is here 🐱‍👤
 
-Here are some ideas to get you started:
+*I've got a selection of God things to SHow stranger*
+
+## LIKE MAY BE:
+
+![Full stack development](download.jpg)
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
