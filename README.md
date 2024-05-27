@@ -17,7 +17,7 @@
 ![alt text](maxresdefault.jpg)
 
 *AND EVEN MORE...!*
-As u can see there is a whole lot of stuff to do! So
+a whole lot of stuff to do! So
 #### Stay with us because we gonna do it all 🔥🔥🔥!!!
 
 ![alt text](OIP.jpg)
