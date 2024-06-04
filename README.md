@@ -3,7 +3,7 @@
 
 ## Alltoft is here 🐱‍👤
 
-*I've got a selection of God things to SHow! stranger*
+*I've got a selection of Good things to SHow! stranger*
 
 ## LIKE MAY BE:
 
