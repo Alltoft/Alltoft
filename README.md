@@ -29,7 +29,7 @@ a whole lot of stuff to do! So
 - 👯 I’m looking to collaborate on eating 😋
 - 🤔 I’m looking for help with learning more
 - 💬 Ask me about : Software Development - Problem-Solving - Programming Languages - Where do you start with a camel?
-- 📫 How to reach me: [Email](ouakouriimran@gmail.com) - [linkedin](www.linkedin.com/in/emr-ane-018120181) - [telegram](@Emrane114)
+- 📫 How to reach me: Telegram_username: @Emrane5114 - Email: ouakouriimran@gmail.com
 - Proud to be Muslim tough 👳‍♂️
 
 ## Over all
